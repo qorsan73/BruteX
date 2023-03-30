@@ -34,7 +34,9 @@ This is a tool for education only, I am not responsible for any misuse
 
 # To contact me via
 telegram / https://t.me/qorsantaez73
-whatsapp / +12513066727
+
+whatsapp / +967737572399
+
 instagram / https://instagram.com/mostafa.qt73?igshid=YmMyMTA2M2Y=
 
 # My YouTube channel
